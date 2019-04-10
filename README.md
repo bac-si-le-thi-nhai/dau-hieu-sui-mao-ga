@@ -1,7 +1,7 @@
-# Triệu chứng sùi mào gà ở nữ giới?
+# Dấu hiệu sùi mào gà ở nữ giới?
 <p>Bệnh mào gà là bệnh xã hội mà mọi người đều có thể mắc phải, nhiều người thường không nhận biết được triệu chứng của bệnh mồng gà mà chỉ chẩn đoán khi bệnh đã nặng, lúc này sẽ gặp khó khăn trong việc điều trị bệnh. Vậy dấu hiệu bệnh mào gà ở chị em phụ nữ như thế nào? Dưới đây là những kiến thức để giải đáp cho vấn đề này.</p>
 
-<h2>Triệu chứng sùi mào gà ở nữ giới?</h2>
+<h2>Dấu hiệu sùi mào gà ở nữ giới?</h2>
 
 <p style="text-align:center"><img alt="" src="http://khamnamkhoathaiha.com/media/images/benh-sui-mao-ga-la-benh-gi-mong-ga.jpg" /></p>
 
